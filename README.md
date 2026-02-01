@@ -1,1 +1,1 @@
-The information about how to get your account deleted.
+The information about how to get your account deleted in RecipeyAI.
